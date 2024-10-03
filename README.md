@@ -21,5 +21,5 @@ This project can be used by:
 
 ## Contact
 
-For any queries or suggestions, please contact Tanishq Mahajan at trmahajan28@gmail.com.
+For any queries or suggestions, please contact Tanishq Mahajan at kathulashalom123@gmail.com.
 
